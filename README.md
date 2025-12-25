@@ -1,9 +1,3 @@
-I guess it's a little late...
-
-but we
-
-![stillguhd!](./github/koba.png) 
-
 # Journal
 
 #### 2025-10-14 
